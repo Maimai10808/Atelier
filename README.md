@@ -38,4 +38,3 @@ Estos son algunos libros que he leído. Los comparto libremente con todos. Mi in
 
 هذه بعض الكتب التي قرأتها. أشاركها مجانًا مع الجميع. اهتمامي محدود قليلاً، ومستواي أيضًا محدود. يُرجى تقديم النقد البناء. يمكن للأصدقاء الذين لديهم اهتمامات مشابهة تبادل الأفكار. إذا كانت هناك أخطاء، أرحب بتصحيحات الأصدقاء.
 
-Let me know if you need any further modifications!
